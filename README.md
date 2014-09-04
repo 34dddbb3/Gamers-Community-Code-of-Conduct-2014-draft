@@ -1,5 +1,11 @@
 Gamers-Community-Code-of-Conduct-2014-draft
 ===========================================
+fellow gamers, if we wish to achieve a tangible goal once the Gamers Revolution of 2014 has come to an end, 
+then we must make preparations for after the war, and compile a clear set of demands, these should include
+an official treaty that defines a Community Code of Conduct, and a Seal of Approval by the community with 
+which we can reward and distinguish those who abide by worthy conduct. 
+
+
 GAMERS COMMUNITY CODE OF CONDUCT of 2014
 
 Art 0. ON PUROSE
